@@ -6,4 +6,4 @@ https://docs.google.com/spreadsheets/d/1W5dMAy1zhElSrU2Bcrrs7-Aqj6Yk6UzTSmpib9jJ
   
 <br/>
 
-<b>Obs: Envie uma mensagem assim, irei adicionar </b>
+<b>Obs: Envie uma mensagem assim, irei adicionar nos contatos e permitir o acesso </b>
